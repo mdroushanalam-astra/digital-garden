@@ -1,4 +1,4 @@
-# Roushan Alam — Personal Digital Garden & Web Platform 🌐🌿
+# Roushan Alam:  Personal Digital Garden & Web Platform 🌐🌿
 
 <div align="center">
 
